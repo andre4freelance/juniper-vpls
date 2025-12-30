@@ -39,4 +39,4 @@ Linkedin post :
 <https://www.linkedin.com/posts/link-andre-bastian_networking-junipernetworks-vpls-activity-7361487051986231300-Ga8c?utm_source=share&utm_medium=member_desktop&rcm=ACoAAD73JlUBty-p-mBfMEW0-O4j0sv-e_PRQvc>
 
 Facebook post : 
-<https://web.facebook.com/share/p/1AvRVGn6iA/>
+<https://www.facebook.com/share/p/17nXEArUVm/>
